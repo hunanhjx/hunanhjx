@@ -14,6 +14,9 @@ Luckly, my devices never brick. haha.
 
 [![Twitter Follow](https://img.shields.io/twitter/follow/ROCMotherHunter?label=%E5%85%B3%E6%B3%A8%E6%88%91&style=social)](https://twitter.com/ROCMotherHunter)
 
+<a href="#">
+<img align="right" src=https://card.exophase.com/2/0/73664.png?1614266045>
+</a>
 <!--
 **hunanhjx/hunanhjx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
