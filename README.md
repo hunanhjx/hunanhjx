@@ -8,12 +8,10 @@
 
 I am a noob who likes to study Android, Linux, hackintosh and Chrome OS...
 
-Just lack of money that can't buy more devices, so, I try things on the devies that I have.
+Just lack of money that can't buy more devices, so, I try things on the devices that I have.
 
 Luckly, my devices never brick. haha.
 
 I love games btw, welcom to play with me.
 
-[![image](https://card.exophase.com/2/0/73664.png?1614266045)](https://www.exophase.com/user/hunanhjx)
-
-QWQ
+[![image](https://card.exophase.com/2/0/73664.png?1614266045)](https://www.exophase.com/user/hunanhjx) Usaully paly with Steam\Battle.net\Xbox
