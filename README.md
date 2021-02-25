@@ -12,7 +12,7 @@ Just lack of money that can't buy more devices, so, I try things on the devies t
 
 Luckly, my devices never brick. haha.
 
-[![Twitter Follow](https://img.shields.io/twitter/follow/ROCMotherHunter?label=%E5%85%B3%E6%B3%A8%E6%88%91&style=social)](https://twitter.com/ROCMotherHunter)
+I love games btw, welcom to play with me.
 
 [![image](https://card.exophase.com/2/0/73664.png?1614266045)](https://www.exophase.com/user/hunanhjx)
 
