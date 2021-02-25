@@ -1,8 +1,11 @@
 ### Hi there 👋
+
+<img src="https://github-readme-stats.mrdulin.vercel.app/api?username=hunanhjx&show_icons=true&hide_border=true&icon_color=586069&title_color=a0a9af" align="right">
+
 - I am a noob who likes to study Android, Linux, hackintosh and Chrome OS.
 - Just lack of money that can't buy the devices, so, I try things on the devies that I have.
 - Luckly, my devices never brick. haha.
-- [![GitHub stats of hunanhjx](https://github-readme-stats.vercel.app/api?username=hunanhjx)](https://github.com/anuraghazra/github-readme-stats)
+
 <!--
 **hunanhjx/hunanhjx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
