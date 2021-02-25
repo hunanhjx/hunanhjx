@@ -12,6 +12,8 @@ Just lack of money that can't buy the devices, so, I try things on the devies th
 
 Luckly, my devices never brick. haha.
 
+[![Twitter Follow](https://img.shields.io/twitter/follow/ROCMotherHunter?label=%E5%85%B3%E6%B3%A8%E6%88%91&style=social)](https://twitter.com/ROCMotherHunter)
+
 <!--
 **hunanhjx/hunanhjx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
