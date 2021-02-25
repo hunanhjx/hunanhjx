@@ -14,4 +14,4 @@ Luckly, my devices never brick. haha.
 
 I love games btw, welcom to play with me.
 
-[![image](https://card.exophase.com/2/0/73664.png?1614266045)](https://www.exophase.com/user/hunanhjx) Usaully paly with Steam\Battle.net\Xbox
+[![image](https://card.exophase.com/2/0/73664.png?1614266045)](https://www.exophase.com/user/hunanhjx)
