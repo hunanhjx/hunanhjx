@@ -1,5 +1,5 @@
 ### Hi there 👋
-- I am a noob who likes to study Android, Linux, hackintosh and Chrome OS
+- I am a noob who likes to study Android, Linux, hackintosh and Chrome OS.
 - Just lack of money that can't buy the devices, so, I try things on the devies that I have.
 - Luckly, my devices never brick. haha.
 <!--
